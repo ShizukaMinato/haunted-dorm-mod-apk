@@ -1,4 +1,4 @@
-# Download Haunted Dorm MOD APK 1.7.4 Unlimited Money And Energy Latest Version For Android 2024
+# Download Haunted Dorm MOD APK 1.7.4 Unlimited Money And Energy Latest Version
 ### What is Haunted Dorm Mod APK?
 The Haunted Dorm Mod APK is an exciting Android game that blends strategy, puzzles, and horror. Set in a spooky university dormitory, players must solve mysteries, outsmart ghosts, and protect their rooms in a haunting survival experience. This mod version enhances gameplay with unlimited gold and energy, making it more engaging for mobile gamers. Whether you're a fan of strategic planning or spine-chilling thrills, this game offers a unique combination of both.
 
